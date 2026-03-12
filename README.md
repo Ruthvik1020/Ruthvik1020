@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ruthvik1020
 - 👀 I’m interested in learning languages
-- 🌱 I’m currently studying in Amity University Bangalore pursuing computer science 
+- 🌱 I’m currently studying in Amity University Bangalore pursuing Computer Science 
 - 📫 reach me @_dzayy 
 - 😄 Pronouns: He/Him
 
